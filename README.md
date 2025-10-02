@@ -1,1 +1,2 @@
-# i-became-the-wife-of-the-male-lead
+# I Became the Wife of the Male Lead
+Se retrouver coincée dans le corps de la méchante que l’on a créée, quelle ironie pour une romancière à succès ! Il va pourtant falloir s’accommoder de la situation, même si le passé de la terrible mage Fiona Green n’est pas réjouissant. Née bâtarde, sa famille n’hésite pas à l’envoyer se battre seule contre des monstres à 13 ans. Mais la nouvelle Fiona ne pourrait-elle pas mettre à profit ses connaissances des rouages de l’histoire pour changer le cours des évènements ?
